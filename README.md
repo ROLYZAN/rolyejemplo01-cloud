@@ -1,0 +1,46 @@
+\# 👨‍🎓 Roly Zanabria Rondinel
+
+
+
+\## 📚 Sobre mí
+
+Hola, soy \*\*Roly Zanabria Rondinel\*\*, estudiante del \*\*ISTP\*\* con interés en el mundo de la tecnología y la innovación.
+
+
+
+\## 🎓 Formación Académica
+
+\- 🏫 Instituto: ISTP  
+
+\- 📖 Carrera: Arquitectura de Plataformas y más áreas relacionadas a tecnología  
+
+
+
+\## 💡 Intereses
+
+\- 🖥️ Desarrollo de plataformas tecnológicas  
+
+\- ☁️ Computación en la nube  
+
+\- 🏗️ Arquitectura de software  
+
+\- 🔐 Seguridad informática  
+
+
+
+\## 🚀 Objetivos
+
+\- Convertirme en un profesional altamente capacitado en arquitectura de plataformas  
+
+\- Desarrollar soluciones tecnológicas innovadoras  
+
+\- Mantenerme en constante aprendizaje en el ámbito tecnológico  
+
+
+
+\## 📫 Contacto
+
+\- ✉️ Email: (tu correo aquí)  
+
+\- 🌐 Portafolio: (si tienes uno, agrégalo aquí)  
+
